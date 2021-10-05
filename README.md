@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @StevenDomingo28
-- 👀 I’m interested in ux/ui designing
+- 👀 I’m interested to?
 - 🌱 I’m currently studying Infromation Technology
 - 💞️ I’m looking to collaborate on something
 - 📫 How to reach me ...
