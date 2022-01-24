@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @StevenDomingo28
-- 👀 I’m interested to?
+- 👀 I’m interested to? UI/UX Designing
 - 🌱 I’m currently studying Infromation Technology
-- 💞️ I’m looking to collaborate on something
+- 💞️ I’m looking to collaborate on something new
 - 📫 How to reach me ...
 
 <!---
